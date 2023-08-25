@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... онгк hty hthht
 - 1123141321423h6bttrt uinfg rgerfyukmf hG ER
-g5td5r3
+g5td5r3т ект
 <!---g rt
 ticinap5/ticinap5 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
